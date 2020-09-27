@@ -26,7 +26,7 @@ To code because I´d like to become a fullstack developer. Hence on September 20
 And many others frameworks, methodologies and best practices to create awesome websites. 
 
 ### ⚡ Fun fact: ...
+------
 
-- Before studying Marketing I started the Bachelor in finance bacause I loved the Stock Market, I still do so one of my hobbies is  💴💵FOREX Trading💶💷💸 and I F** ❤❤❤❤❤ IT!
+I also am a 💴💵 Professional FOREX Trader💶💷💸 and I F** ❤❤❤❤❤ the shots of adrenaline it gives me every day!
 
-So, if someone asks what do you do?...I guess I am a marketer, media expert, data specialist, web developer and Forex trader 😆
