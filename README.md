@@ -15,7 +15,7 @@
 ### 📚 I’m currently learning ...
 ------
 
-To code because I´d like to become a fullstack developer. Hence on September 2020 I joined The Bridge to learn: 
+To code because I´d like to become a fullstack developer. Hence on September 2020 I joined [The Bridge](www.thebridge/tech/) to learn: 
 
 | TOOLS        |            | 
 | ------------- |:-------------:| 
