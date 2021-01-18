@@ -1,5 +1,7 @@
 ### Hi there this is Elisa Soto 🖖🏽
 
+#### A DEVELOPER ON THE MAKE ⛩
+
 ### 👩🏽 About Me
 ------
 
